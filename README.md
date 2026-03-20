@@ -1,0 +1,2 @@
+# FocusQuest-
+For Students Laziness 
